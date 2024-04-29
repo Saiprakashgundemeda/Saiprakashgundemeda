@@ -53,7 +53,7 @@
 📫 Reach me at gundemedasaiprakash@gmail.com
 <p>Twitter:https://twitter.com/Saiprakash_2003/</p>
 <p>Youtube: https://www.youtube.com/@codewithprakash/videos/</p>
-<p>Instagram: https://www.instagram.com/code_with_prakash//</p>
+<p>Instagram: https://www.instagram.com/code_with_prakash/</p>
 <p>Linkedin: https://www.linkedin.com/in/saiprakashgundemeda/</p>
 
 ---
